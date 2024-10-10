@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @eymen1313
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning html
-- 📫 How to reach me discord: eymenbutnot
+- 📫 How to reach me discord: eymenbutnot_
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: If a turtle’s shell is not cleaned after
 - being removed, the microscopic algae on the shell can
