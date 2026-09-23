@@ -3,6 +3,6 @@ Feel free to contact me
 
 · discord: babakatilisucuk,
 
-· instagram: eymnozcn,
+· instagram: @eymnozcn,
 
 · gmail: eymenozcan@gmail.com
